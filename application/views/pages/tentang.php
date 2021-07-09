@@ -1,0 +1,6 @@
+<h2>Tentang GG Store</h2>
+<h3>Mission GG Store</h3>
+<p>Our Mission is simple , to help elevating Indonesia’s Gaming World by supplying flawless gear. Please Don’t Hesitated to ask if you have any question, We will be most pleased to help . ‘We Help you getting ‘First Blood’ Faster,Easier too.</p>
+<br>
+<h2>The Best Experience Ever</h2>
+<p>GGStore adalah toko gaming yang didirikan oleh Pro Gamers di Indonesia, Kita mendedikasikan diri kita dalam menjawab Kebutuhan Gaming anda . Toko kami di supplies dengan Gaming equipment terkemuka dari berbagai negara yang telah terbukti di dunia gamers . Misi kita sangat sederhana , memajukan Industri gaming di indonesia dengan cara memberikan gaming gear yang terbaik . Kita tidak hanya bisa menjual barang , kita mengerti apa yang kami jual , kami meng review barang gaming yang beredar sendiri dengan komunitas kami , kami mampu mengservice gaming gear anda juga , dan tentunya kita memberikan Service purna jual yang terbaik terutama dalam masalah after sales dan garansi semuanya hanya untuk menjawab kebutuhan Gaming Gear anda , bertanyalah kepada rekan anda yang sudah berbelanja di GGStore mereka pastilah mereka sudah merasakan after sales terbaik kami .</p>
